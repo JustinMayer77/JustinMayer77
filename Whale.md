@@ -1,3 +1,0 @@
-# Butts
-## Coconuts
-### Scooby Doo
